@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Fanefo
+- 👀 I’m interested in programing, subnetting, video games and network. 
+- 🌱 I’m currently learning front-end development and subneting
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: fane#8160 on discord
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm 
